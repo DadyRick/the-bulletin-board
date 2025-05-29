@@ -5,5 +5,4 @@
 
 ill share what im up to here and on my twitter so people can see what im on-about
 
-![Uploading image.png…]()
-
+https://cdn.bsky.app/img/feed_fullsize/plain/did:plc:lfzlhpj3ztrrwuhrpxkjwltc/bafkreigp2kj5fzrl376ou6kd7rkmp46hdt5msgt5d3kpy7vdvhl4ymnmyy@jpeg
