@@ -5,4 +5,4 @@
 
 ill share what im up to here and on my twitter so people can see what im on-about
 
-https://cdn.bsky.app/img/feed_thumbnail/plain/did:plc:lfzlhpj3ztrrwuhrpxkjwltc/bafkreigp2kj5fzrl376ou6kd7rkmp46hdt5msgt5d3kpy7vdvhl4ymnmyy@jpeg
+![bafkreigp2kj5fzrl376ou6kd7rkmp46hdt5msgt5d3kpy7vdvhl4ymnmyy](https://github.com/user-attachments/assets/2348dae9-4356-4fb9-84a4-0d971c1833ed)
