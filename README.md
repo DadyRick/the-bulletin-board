@@ -4,3 +4,5 @@
 >ill start with using a website maker like wix to get an example, then learn html or something like it to make a proper start
 
 ill share what im up to here and on my twitter so people can see what im on-about
+
+https://bsky.app/profile/dadyrick.bsky.social/post/3lqckxxanr22j
